@@ -1,0 +1,1 @@
+# szkallol-class-1
